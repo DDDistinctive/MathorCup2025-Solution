@@ -1,0 +1,1 @@
+# MathorCup2025-Solution
